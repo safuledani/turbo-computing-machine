@@ -1,0 +1,1 @@
+In 1902, the coat hanger was invented Albert Parkhouse who was frustrated at the lack of hooks available to hang up his coat at work. His company thought it was a good idea and patented the invention and unfortunately, Parkhouse never received any money for his idea
